@@ -1,0 +1,1 @@
+My father offered to let me try a few Sudoku puzzles during an AmTrak trip. I decided to solve them all, instead.
